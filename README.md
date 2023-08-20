@@ -28,5 +28,5 @@ CSS
 ![Screenshot 2023-08-20 234518](https://github.com/rupesh0511/Amazon/assets/69234169/d607d84b-df79-4733-913d-ced5e2b3b819)
 
 ![Screenshot 2023-08-20 234529](https://github.com/rupesh0511/Amazon/assets/69234169/1d2f6247-b5c3-4f9e-960c-a88c21271ea3)
+![Screenshot 2023-08-20 234546](https://github.com/rupesh0511/Amazon/assets/69234169/9aefd4d3-1c71-4f22-84dc-493af670bb81)
 
-![Screenshot 2023-08-20 234518](https://github.com/rupesh0511/Amazon/assets/69234169/0d668ac9-0167-415a-ade5-a983d3e26788)
